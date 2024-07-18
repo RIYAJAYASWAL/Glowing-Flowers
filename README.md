@@ -1,2 +1,2 @@
 # Glowing-Flowers
-gif of glowing flowers
+GIF of Glowing Flowers 🌸🌼 and a Nice Coverpage 📔📃 !!
